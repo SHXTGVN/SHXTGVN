@@ -31,11 +31,11 @@ ex ;
 ```
 amy ; more affectionate and silly [ ? ]
 
-dark sonic ; more talkative and silly>
+dark sonic ; more talkative and silly 
 
 sir lancelot ; calm , semi - verbal [ ? ] .
 
-fleetway ; more talkative , silly , and flirty .
+fleetway ; more talkative , silly , bolder , and flirty . [ ? ]
 
 muisc rust [ tf oc ] ; calm , more quiet , semi-verbal .
 ```
