@@ -1,45 +1,78 @@
-hello , you may refer to me as ' knight / ZOMBI3 / CR33P3R / pil0tt ' and many more ! my pronouns page has the full list . but you may also refer to me as whatever you'd like . [ as long as its appropriate ]
+my github is very detailed , it has more info then my carrd and patreon . kind of .. 
+if you'd not like to read all this then feel free to see my carrd or patreon instead . they both suffice i guess .
+---
+hello !
 
-gender + pronouns ; CISfemale ; she / her 
---------------------------------------------------------------------
-PONY TOWN INFO ;
---------
-im only in the safe server . [ banned from 18+ ]
+you may refer to me as AJ/JJ/GRANDMA as they are what im most commonly known as , or wtv other name i also go by [ theres a whole list , all could be found in my pronouns page , you may also refer to me as wtv you'd like , seriously , i will add it to the list ! ] .
 
-im always c + h unless said otherwise !! i absolutely adore cuddles , it brings me alot of comfort .
+female ; she / her ; minor !
+---
+please keep in mind that my activity is completely random , i dont get online much due to being busy irl or just not feeling it . which is why i would be offline for weeks and get online for a few days .
 
-my activity in pt is absolutely random , i could go offline for months then be back online for a few weeks or more .
+another thing to note about me is my memory , there has been many times and issues where i would forget about someone and i deeply apologize for it . i forget really easily ..
 
-i deeply apologize if i forget who you are , i have horrible memory and not even the friend notes help sometimes ,,,
+im also really bad at communicating , both emotionally and socalizing type way . im a very awkward person and somewhat sensitive . i can be very repetitive in conversations , especially when i have no other words to say in response . sorry if it bothers you .
 
-i like to kiss skins / characters that i like . terribly sorry if it makes you uncomfortable !!
+i can be very expressive in text , esp with emojis and emoticons . tonetags , although not necessary , are appreciated !!
 
-i like to whisper most of the time ,,,
+i have a very small attention span . assumed to be similar like a sparrow smh .. im terribly sorry if it seems like im paying more attention to the other person , its difficult for me to pay attention to more then 1 or 2
 
-tonetags , althought not necessary , are appreciated !
+i can be very affectionate , wether ingame physcial , or verbally <3 . note that i like to kiss skins / cosplays that i like . sorry if it bothers you .
 
-i have an attention span of a sparrow , i apologize but i get distracted easily !
+im always approachable and C + H unless said other wise !! 
 
-im a very awkward person ,,,
+since i was banned from the 18 + server , im always in safe .
 
-i will block / hide you if you make me extremely uncomfortable .
+i will not hesitate to block / hide when i feel the need to .
 
+sometimes my persona may slightly alter depending on my mood , what pony i am , and who im with . i could be really quiet and formal for a minute , then talkative and chaotic the next . you could also guess what mood i am in and how i may act depending on what pony im currently in . [ e.g : light and cheery = talkative and silly , dark and off = quiet , etc . ]
 
-***NOTE ; my persona may slightly alter depending on who im with and what cosplay i am in .*** 
+i may get excited and start to rant about wtv it is im currently really interested in if it was brought up , i deeply apologize for that .
 
-ex ;
+i dont usually judge people , but does not mean that i dont . respect people's boundries and dont be a dumbass .
+
+i may or may not think twice before i talk sometimes , sorry if i say something off or stupid . 
+
+majority of the time i dont take or do ships seriously . if anything 90% of the time i do ships as jokes , because for some reason i find a lot of ships funny / silly [ / pos ] [ EXCEPT THE BAD ONES ,,, DNI !!! ] . im more of a familial person myself but there are certain ships i take comfort in and yeah . but please do not be discouraged to share your ships w me ! id like to hear about it :] !!! [ EXCEPT IF ITS ON MY DNI LIST ,,, / CONSIDERED AS A PROSHIP . ]
 ```
-amy ; more affectionate and silly [ ? ]
+SHIPS DNI !!! ;
 
-dark sonic ; more talkative and silly 
+megatron + starscream [ HEAVY DNI ]
 
-sir lancelot ; calm , semi - verbal [ ? ] .
+bumblebee + optimus prime [ HEAVY DNI ]
 
-fleetway ; more talkative , silly , bolder , and flirty . [ ? ]
+bumblebee + arcee
 
-muisc rust [ tf oc ] ; calm , more quiet , semi-verbal .
+megatron + any of the decepticons
+
+lloyd + any of the ninjas [ HEAVY DNI ]
+
+ghost + soap [ weird fans ,,, ]
+
+captain price + gaz
+
+alejandro + rudy
+
+[ note ; except for the ships with heavy dni , you can still int w me as long as you dont mention any of these ships around me . ]
+```
+DNI ;
+-------
+```
+basic dni criteria 
+under 12 or above 25 
+steal art , trace art without perm or credit 
+dream stans [ rude ones ,,, ] 
+judge others based on their interests / looks / music taste / etc 
+proshippers / comshippers 
+islamophobic
 ```
 
-this is still a wip ; please see carrd / patreon for furthur info [ such as the int and dni list . ] but this info should suffice for now .
+>if your not included in the list , then feel free to int !
 
-thank you for reading <33 !
+if you ever want to talk here are some of my socials ! 
+[1] discord ; yourphotogallery
+[2] discord ; yourpil0tt
+pinterest ; yourpil0tt
+amino ; yourpil0tt
+
+>[ note ; please let me know if you have sent me a request on either of these !! ]
