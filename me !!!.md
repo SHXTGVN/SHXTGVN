@@ -31,6 +31,8 @@ i may get excited and start to rant about wtv it is im currently really interest
 
 i dont usually judge people , but does not mean that i dont . respect people's boundries and dont be a dumbass .
 
+i may or may not think twice before i talk sometimes , sorry if i say something off or stupid . 
+
 majority of the time i dont take or do ships seriously . if anything 90% of the time i do ships as jokes , because for some reason i find a lot of ships funny / silly [ / pos ] [ EXCEPT THE BAD ONES ,,, DNI !!! ] . im more of a familial person myself but there are certain ships i take comfort in and yeah . but please do not be discouraged to share your ships w me ! id like to hear about it :] !!! [ EXCEPT IF ITS ON MY DNI LIST ,,, / CONSIDERED AS A PROSHIP . ]
 ```
 SHIPS DNI !!! ;
@@ -65,7 +67,7 @@ proshippers / comshippers
 islamophobic
 ```
 
-<if your not included in the list , then feel free to int !<
+>if your not included in the list , then feel free to int !
 
 if you ever want to talk here are some of my socials ! 
 [1] discord ; yourphotogallery
@@ -73,7 +75,7 @@ if you ever want to talk here are some of my socials !
 pinterest ; yourpil0tt
 amino ; yourpil0tt
 
-<[ note ; please let me know if you have sent me a request on either of these !! ]<
+>[ note ; please let me know if you have sent me a request on either of these !! ]
 
 
 
