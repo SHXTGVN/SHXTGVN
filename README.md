@@ -82,9 +82,13 @@ islamophobic
 >if your not included in the list , then feel free to int !
 
 if you ever want to talk here are some of my socials ! 
+
 [1] discord ; yourphotogallery
+
 [2] discord ; yourpil0tt
+
 pinterest ; yourpil0tt
+
 amino ; yourpil0tt
 
 >[ note ; please let me know if you have sent me a request on either of these !! ]
