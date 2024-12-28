@@ -35,6 +35,16 @@ i may or may not think twice before i talk sometimes , sorry if i say something 
 
 sometimes i may refer to myself as ' we ' instead of ' i ' . it doesnt happen often but it still occurs every now and then .
 
+abbreviations i may use ; 
+```
+int ; interact
+dniuf ; do not interact unless friend [ / green name ]
+non - verbal ; when i dont feel like talking
+semi - verbal ; when i also dont feel like talking but will give short responses
+afk / offtab ; when im not paying attention to the game [ feel free to whisper to gain my attention tho ! ]
+w2i ; whisper to interact
+```
+
 majority of the time i dont take or do ships seriously . if anything 90% of the time i do ships as jokes , because for some reason i find a lot of ships funny / silly [ / pos ] [ EXCEPT THE BAD ONES ,,, DNI !!! ] . im more of a familial person myself but there are certain ships i take comfort in and yeah . but please do not be discouraged to share your ships w me ! id like to hear about it :] !!! [ EXCEPT IF ITS ON MY DNI LIST ,,, / CONSIDERED AS A PROSHIP . ]
 ```
 SHIPS DNI !!! ;
