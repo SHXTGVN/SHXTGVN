@@ -87,6 +87,8 @@ if you ever want to talk here are some of my socials !
 
 [2] discord ; yourpil0tt
 
+insta ; professional_acrobat 
+
 pinterest ; yourpil0tt
 
 amino ; yourpil0tt
