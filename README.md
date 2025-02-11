@@ -3,9 +3,9 @@ if you'd not like to read all this then feel free to see my carrd or patreon ins
 ---
 hello !
 
-you may refer to me as AJ/JJ/GRANDMA as they are what im most commonly known as , or wtv other name i also go by [ theres a whole list , all could be found in my pronouns page , you may also refer to me as wtv you'd like , seriously , i will add it to the list ! ] .
+you may refer to me as AJ/JJ/GRANDMA as they are what im most commonly known as , or wtv other name i also go by [ theres a whole list , all could be found in my pronouns page , you may also refer to me as wtv you'd like , seriously , i will add it to the list ! i tend to not stick to one name .. identity crisis ] .
 
-female ; she / her ; minor !
+female ; she / her ; april 23 ; minor !
 ---
 please keep in mind that my activity is completely random , i dont get online much due to being busy irl or just not feeling it . which is why i would be offline for weeks and get online for a few days .
 
@@ -43,6 +43,7 @@ non - verbal ; when i dont feel like talking
 semi - verbal ; when i also dont feel like talking but will give short responses
 afk / offtab ; when im not paying attention to the game [ feel free to whisper to gain my attention tho ! ]
 w2i ; whisper to interact
+asleep / in menu ; afk
 ```
 
 majority of the time i dont take or do ships seriously . if anything 90% of the time i do ships as jokes , because for some reason i find a lot of ships funny / silly [ / pos ] [ EXCEPT THE BAD ONES ,,, DNI !!! ] . im more of a familial person myself but there are certain ships i take comfort in and yeah . but please do not be discouraged to share your ships w me ! id like to hear about it :] !!! [ EXCEPT IF ITS ON MY DNI LIST ,,, / CONSIDERED AS A PROSHIP . ]
@@ -64,6 +65,10 @@ ghost + soap [ weird fans ,,, ]
 captain price + gaz
 
 alejandro + rudy
+
+nightwing x red hood [ HEAVY DNI . ]
+
+any batfam member x batfam member [ HEAVY DNI . ]
 
 [ note ; except for the ships with heavy dni , you can still int w me as long as you dont mention any of these ships around me . ]
 ```
