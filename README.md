@@ -15,9 +15,11 @@ professional_acrobat
 
 discord ;
 
-[ 1 ] yourphotogallery
+[ main ] anonymovszero
 
-[ 2 ] yourpil0tt
+[ main ] yourphotogallery
+
+[ backup ] yourpil0tt
 
 pinterest : 
 
