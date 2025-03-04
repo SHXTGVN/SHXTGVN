@@ -27,7 +27,7 @@ professional_acrobat
 
 discord ;
 
-[ main ] anonymovszero
+[ main ] slendercore
 
 [ main ] yourphotogallery
 
