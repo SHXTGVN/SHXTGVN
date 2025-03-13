@@ -23,7 +23,7 @@ socials because i forgot to add them on sp :
 
 instagram ;
 
-professional_acrobat
+sleep_depriv4tion
 
 discord ;
 
