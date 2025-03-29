@@ -26,11 +26,7 @@ sleep_depriv4tion
 
 discord ;
 
-[ main ] slendercore
-
-[ main ] yourphotogallery
-
-[ backup ] yourpil0tt
+slendercore
 
 pinterest : 
 
