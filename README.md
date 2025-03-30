@@ -15,7 +15,6 @@ sv : semi - verbal ! ; i dont put this on very much but you can tell if i am sem
 nv : non - verbal ! ; again , i dont put this on but you'll be able to tell i am nv if i dont reply verbally for awhile . ^
 [ + ] offline : i like to put this on sometimes when im with party / a group of friends [ or non friends ] and dont want to be approached by anyone else unless i interacted with you first [ this status applies to friends only btw ] . but if i have the status and im alone , feel free to approach . either i forgot to turn the status off or i want to hide .  
 
-
 ```
 socials because i forgot to add them on sp :          
 
