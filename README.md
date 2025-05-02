@@ -1,11 +1,11 @@
---> [ strawpage !! ](https://introsighhh.straw.page)
+[ strawpage . ](https://introsighhh.straw.page)
 
---> [more info !!](https://rentry.co/slendercore)
-
-
+ [ extended . ](https://rentry.co/slendercore)
 
 
-💥
+
+
+
 
 
 >abbreviations i use and what i mean by them ! :
