@@ -8,7 +8,7 @@
 
 
 
->abbreviations i use and what i mean by them ! :
+>abbreviations i use and what i mean by them :
 ```
 dni : do not interact ! ; i dont use this very often but when i do , im either upset or just low on energy and would not liked to be approached . [ note that friends / party are the ONLY exception to this , even when not specified . ]
 sv : semi - verbal ! ; i dont put this on very much but you can tell if i am semi - verbal based on my lack of replies . when i am sv its because im either drained , feeling out of place , or busy .
