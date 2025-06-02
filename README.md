@@ -1,4 +1,4 @@
-[ strawpage . ](https://introsighhh.straw.page)
+[ strawpage . ](https://gr1ff.straw.page)
 
  [ extended . ](https://rentry.co/slendercore)
 
