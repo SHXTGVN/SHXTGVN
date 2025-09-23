@@ -1,6 +1,6 @@
 hello you freaks/lh
 
-CHAT GO CANCEL @axeofpeace !!!!!
+CHAT GO CANCEL [@axeofpeace](https://github.com/axeofpeace) !!!!!
 
 
 🔴/busy = dni unless friend.
