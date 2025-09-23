@@ -1,5 +1,7 @@
 hello you freaks/lh
 
+CHAT GO CANCEL @axeofpeace !!!!!
+
 
 🔴/busy = dni unless friend.
 
