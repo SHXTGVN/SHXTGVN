@@ -1,5 +1,8 @@
 hello you freaks/lh
 
+> <sub>female: he/she, aromantic: platoniromantic</sub>
+
+
 CHAT GO CANCEL [@axeofpeace](https://github.com/axeofpeace) <33 !!!!!
 
 
