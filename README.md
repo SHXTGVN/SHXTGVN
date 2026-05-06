@@ -5,7 +5,7 @@ hello you freaks/lh
 
 
 
-🔴/busy = dni unless friend.
+c+h HEAVILY encouraged please please
 
 
 
