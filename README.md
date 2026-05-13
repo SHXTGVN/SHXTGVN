@@ -1,6 +1,6 @@
 hello you freaks/lh
 
-> <sub>unlabelled: he/she, aromantic: platoniromantic</sub>
+> <sub>unlabelled: he/she,</sub>
 
 
 
