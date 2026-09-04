@@ -10,12 +10,10 @@
 <p align="center">
 also ponytown's <a href="https://github.com/pt-hall-of-media">Sakunosuke Oda</a>
 <p>
-
-⠀ ⠀ ⠀ ⠀ ⠀
-⠀ ⠀ ⠀ ⠀ ⠀
-⠀ ⠀ ⠀ ⠀ ⠀
-⠀ ⠀ ⠀ ⠀ ⠀
-c+h HEAVILY encouraged please please
+   
+    
+    
+ c+h HEAVILY encouraged please please
 
     
 
